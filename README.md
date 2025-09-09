@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @WoNDerlanD-or-HEll
+- 👋 Hi, I’m @WoNDerlanD-or-HEll, a Existential Nihilist with a paradoxical belief in god. If I were a tarot card, I would be The End XXIII.
 - 👀 I’m interested in ... Theory! I will give you every single possible theory in making hacking device DIY! Since they are only theory feel free to try them, But I won't be held resonpsible for failures now will I?
 - 🌱 I’m currently learning ... mmmmm.....Cybersecuity, Networking, Programming, Iot, oT, and Theory!
 - 💞️ I’m looking to collaborate on ... Yes?
